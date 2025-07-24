@@ -1,4 +1,3 @@
-# 💫 About Me:
 ## Halo Guys! Saya Arya Pramudia 👋
 
 
